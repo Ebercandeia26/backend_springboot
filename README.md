@@ -6,7 +6,7 @@ Bruna Beatriz
 Eber Candeia
 Edivaldo Coelho
 Fabyane Nayara
-Richard Henrique
+Richard Santos
 Silas Sousa
 Thyago Henrique
 Sobre o Projeto
